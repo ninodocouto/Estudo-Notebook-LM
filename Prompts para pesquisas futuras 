@@ -1,0 +1,11 @@
+# Principais Prompts para futuras consutas
+
+Como o Mahayana e o Theravada interpretam o Nirvana?
+
+Explique melhor o renascimento sem a existência de uma alma.
+
+Quais são as diferenças práticas do Nobre Caminho Óctuplo?
+
+Quais as principais diferenças entre as tradições Theravada e Mahayana?
+
+Como o Budismo explica o renascimento sem uma alma eterna?
