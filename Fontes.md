@@ -1,0 +1,4 @@
+# Fontes : 
+https://www.youtube.com/watch?v=4Kwgh9K7PZI
+https://en.wikipedia.org/wiki/Buddhism
+https://www.ebiografia.com/buda/
